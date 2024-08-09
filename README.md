@@ -4,6 +4,7 @@ Meu nome é Esther
 
 -Sou estudante do Alura
 -Pretendo continuar estudando para melhorar a cada dia
+
 ![a drawing of a girl carrying a bag and a chicken](![image](https://github.com/user-attachments/assets/f78ffafd-739c-4e1d-b751-4604984817f7)
 
 Como antigamente
