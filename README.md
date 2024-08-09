@@ -5,7 +5,8 @@ Meu nome é Esther
 -Sou estudante do Alura
 -Pretendo continuar estudando para melhorar a cada dia
 
-![descrição do gif]([image](https://github.com/user-attachments/assets/f78ffafd-739c-4e1d-b751-4604984817f7)
+
+![boas vindas([image](![image](https://github.com/user-attachments/assets/aa089789-fffb-4b1b-a1a4-b5e832cf3424)
 
 Como antigamente
 Meus olhos brilham
