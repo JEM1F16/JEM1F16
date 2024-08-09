@@ -12,5 +12,5 @@ Como antigamente
 Meus olhos brilham
 Com cada risada de seus lábios
 
-![noites estrelada](![image](https://github.com/user-attachments/assets/768280c5-03e8-4a35-8fef-942e7ed2af16)
+![noites estrelada](https://media1.tenor.com/m/nmeSNaCK220AAAAC/art-starry-night.gif)
 
