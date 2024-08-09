@@ -6,7 +6,7 @@ Meu nome é Esther
 -Pretendo continuar estudando para melhorar a cada dia
 
 
-![xie lian](![image](https://github.com/user-attachments/assets/aa089789-fffb-4b1b-a1a4-b5e832cf3424)
+![xie lian](![image](https://media1.tenor.com/m/X2bGJerrujsAAAAd/heaven-official%27s-blessing-tgcf.gif)
 
 Como antigamente
 Meus olhos brilham
